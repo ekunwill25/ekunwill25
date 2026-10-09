@@ -1,5 +1,5 @@
 # 💫 About Me:
-Working on university projects involving C, C++ and python<br>Strongly needs help with learning data structure algorithms<br>Enjoys learning, watches a lot of shows/animes, goes gym and watches football<br>3rd Year computer science student<br>United Kingdom<br>Trying to work as an infrastructure engineer, cloud engineer, network engineer or hardware engineer (open to roles in software)<br>Aiming to be very diverse in multiple different technology fields<br>Uses twitter,instagram,discord<br>To contact me privately, add my discord and message me (flyboyswag25)<br>
+Working on university projects involving C, C++ and python<br>Strongly needs help with learning data structure algorithms<br>Enjoys learning, watches a lot of shows/animes, goes gym and watches football<br>3rd Year computer science student<br>United Kingdom<br>Trying to work as an infrastructure engineer, cloud engineer, network engineer or hardware engineer (open to roles in software)<br>Aiming to be very diverse in multiple different technology fields<br>Uses twitter,instagram,discord<br>To contact me privately, add my discord and message me (timewilltell25)<br>
 
 
 ## 🌐 Socials:
